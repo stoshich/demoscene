@@ -1,4 +1,4 @@
 Стошич Стефан
 Скрябин Дмитрий 
 
-![картинка](https://img3.goodfon.ru/wallpaper/big/e/49/anime-devochka-fioletovye.jpg)
+![картинка](https://pp.userapi.com/c831409/v831409471/12e93/1OuUc_Etsog.jpg)
